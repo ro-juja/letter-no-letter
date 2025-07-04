@@ -1,2 +1,2 @@
 # letter-no-letter
-Fondly, Ro-juja
+Fondly, ro-juja
